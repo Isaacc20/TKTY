@@ -11,7 +11,7 @@
 
 ## 🔗 Live Links
 - 🚧 Demo (coming soon)  
-- 📖 Build Log: [Follow on LinkedIn](https://linkedin.com/in/yourprofile) | [Follow on X](https://x.com/yourhandle)
+- 📖 Build Log: [Follow on LinkedIn](https://linkedin.com/in/isaacoyedele) | [Follow on X](https://x.com/hyzeekoyedele)
 
 ---
 
